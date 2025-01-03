@@ -1,4 +1,6 @@
-## Hi there 👋
+# Hi there, greetings! 🖖 #
+* *(I admit, I'm a Gater ᐰ (the Star kind), not so much of a Trekkie. I do love sci-fi. )* *
+
 
 <!--
 **lillakm/lillakm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
