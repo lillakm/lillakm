@@ -1,5 +1,5 @@
 # Hi there, greetings! 🖖 #
-* *(I admit, I'm a Gater ᐰ (the Star kind, not the sport one), not so much of a Trekkie. I do love sci-fi. )* *
+* *(I admit, I'm a Gater (the Star ᐰ kind, not the sport one), not so much of a Trekkie. I do love sci-fi. )* *
 
 
 <!--
